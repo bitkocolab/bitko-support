@@ -8,7 +8,7 @@ Below are our official support channels where our team will respond to you suppo
 If you need help with Bitko, contact us:
 
 - 📧 Email: support@bitko.so  
-- 📞 Phone: +252-61XXXXXXX
+- 📞 Phone: +252-617255206
 
 Our support team is available 24/7 to assist you.
 
